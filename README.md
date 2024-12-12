@@ -16,8 +16,6 @@
 
 ---
 
----
-
 ## **You Are Awesome | ༺ Harry DS Alsyundawy ༻ | Hardline & Militant Lying Around**
 ## **༺ Just Me, I & My Self. No Body Perfect. I Am Internet Addict, Windows, Mac & Linux Lover, I Am Not Good Man But The Man In Good Day  ༻**
 
